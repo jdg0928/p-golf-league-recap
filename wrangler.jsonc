@@ -1,0 +1,13 @@
+{
+  // Must match the Project name in the Cloudflare dashboard.
+  "name": "golf-league-recaps",
+
+  // Pins the Workers runtime behavior to this date.
+  "compatibility_date": "2026-09-10",
+
+  // Static-only Worker: everything in ./public is published as-is.
+  // Season pages live at /2026/, /2027/, and so on.
+  "assets": {
+    "directory": "./public"
+  }
+}
