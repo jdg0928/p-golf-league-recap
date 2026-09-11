@@ -110,4 +110,4 @@ Their logo is embedded in the page and links to https://35x70golfco.com.
 
 ---
 
-*Last updated September 2026.*
+*Last updated September 2026*
