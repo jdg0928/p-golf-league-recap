@@ -10,8 +10,8 @@
 
 ## Two holes-in-one
 
-- **Joey Desimone**, Week 1, No. 12, 6 p.m. group.
-- **Dennis McNicholl**, Week 2, No. 9, 5:40 p.m. group.
+- **Joey Desimone**, Week 1, No. 12, 6 p.m. tee time.
+- **Dennis McNicholl**, Week 2, No. 9, 5:40 p.m. tee time.
 - First aces in league play in at least a decade, and two in two weeks.
 - Two of the season's 10 eagles were these. Joey Desimone's was the only eagle he made all year.
 
@@ -26,7 +26,7 @@
 ## Weekly contests
 
 - 28 prizes awarded. **16 of the 26 contest-division players won at least one.**
-- **Weekly Reload** (low net for the night, sleeve of ProV1s): Jim Madden 3 wins (Weeks 1, 2, 14); David Hodge, Dan Cuddy, and Jeff Janczak 2 each; Brian Zinn, Logan Slattery, Robert Huften, Austin Isaacson, and Christof Marre 1 each.
+- **Weekly Reload** (low net for the night, a sleeve of Titleist ProV1 or V1x): Jim Madden 3 wins (Weeks 1, 2, 14); David Hodge, Dan Cuddy, and Jeff Janczak 2 each; Brian Zinn, Logan Slattery, Robert Huften, Austin Isaacson, and Christof Marre 1 each.
 - **Longest Putt Made**: Logan Slattery 8' 4" (Wk 6, No. 9); Brandon Bogrette 15' 7" (Wk 10); Trent Gutstein 10' 7" (Wk 15, distance is a best guess, sheet discarded).
 - **Closest to the Pin, 1st shot**: Steven Cruz 15' 7" (Wk 9); Logan Slattery 11' 4" (Wk 11); Steve Menges 42' 4" (Wk 14).
 - **Closest to the Pin, 2nd shot**: Jim Madden 10' 6" (Wk 9); Steve Menges 8' 9" (Wk 11); Trent Gutstein 2' 7" (Wk 14), the closest contest shot of the season.
@@ -38,7 +38,7 @@
 - Front and back play nearly the same: front +10.46 over par as a group, back +10.39.
 - **Hardest**: No. 2 (par 5, 6.72 avg, one birdie all season); No. 17 (par 4, 5.66, more than half of scores double or worse); No. 5 (par 5, 6.45, shortest of the three front par 5s).
 - **Most forgiving**: No. 4 (par 3, 3.84, the only hole that played under four strokes); No. 8 (par 5, 5.89, 16 birdies, most on the card); No. 6 (par 4, 4.94, 12 birdies and as many pars as bogeys).
-- **Most bogeys on any hole**: No. 12 with 88. Seldom a par, seldom a disaster.
+- **Most bogeys on any hole**: No. 12 with 88. Seldom a par, seldom a disaster, almost always a bogey.
 - **Most pars on any hole**: No. 13 with 71.
 - No. 3 is a two-tiered green, played to the harder back pin every week, which is why a short par 3 ranked 4th-hardest.
 - No. 11 played closer to a par 3½ during drainage and retaining-pond construction but was scored to its par 4, so its average is not comparable. Work is complete.

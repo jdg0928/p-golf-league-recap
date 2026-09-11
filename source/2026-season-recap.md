@@ -6,7 +6,7 @@ The 2026 season ran the full 15-week calendar with a single exception: Week 12 w
 
 ## Two aces in two weeks
 
-The season's biggest news arrived before anyone had settled in. Joey Desimone holed his tee shot on the 12th in Week 1, playing in the 6 p.m. group. A week later, Dennis McNicholl did the same thing on the 9th in the 5:40 p.m. group. Two holes-in-one in the opening fortnight, and the first anyone can remember in league play in at least a decade.
+The season's biggest news arrived before anyone had settled in. Joey Desimone holed his tee shot on the 12th in Week 1, playing the 6 p.m. tee time. A week later, Dennis McNicholl did the same thing on the 9th from the 5:40 p.m. tee time. Two holes-in-one in the opening fortnight, and the first anyone can remember in league play in at least a decade.
 
 Both show up in the season's scoring data, too. The league made 10 eagles or better all year, and two of them were these. For Joey Desimone, the ace was the only eagle he made all season.
 
@@ -24,9 +24,9 @@ Jason Gerdom took the Ringer Scorecard as well, finishing at 48, which is 22 und
 
 The one-off contests gave the season its texture, and 28 prizes went out across the summer.
 
-The Weekly Reload, low net for the night, ran every week and paid a sleeve of Titleist ProV1s. Jim Madden won it three times, more than anyone, including the very first Monday. David Hodge, Dan Cuddy, and Jeff Janczak took two apiece, and Brian Zinn, Logan Slattery, Robert Huften, Austin Isaacson, and Christof Marre each grabbed one.
+The Weekly Reload, low net for the night, ran every week and paid a sleeve of Titleist ProV1 or V1x golf balls. Jim Madden won it three times, more than anyone, including the very first Monday. David Hodge, Dan Cuddy, and Jeff Janczak took two apiece, and Brian Zinn, Logan Slattery, Robert Huften, Austin Isaacson, and Christof Marre each grabbed one.
 
-On the skill contests, Logan Slattery made an 8-foot, 4-inch putt to win Longest Putt in Week 6, Brandon Bogrette answered with 15 feet, 7 inches in Week 10, and Trent Gutstein closed it out in Week 15. Closest to the Pin produced the season's two funniest numbers on the same night: in Week 14, Steve Menges won the first-shot prize from 42 feet, 4 inches, because nobody troubled the flag, while Trent Gutstein took the second-shot prize from 2 feet, 7 inches, the closest anyone hit it all season. Steven Cruz and Jim Madden split the Week 9 prizes, and Logan Slattery and Steve Menges split Week 11.
+On the skill contests, Logan Slattery made an 8-foot, 4-inch putt to win Longest Putt in Week 6, Brandon Bogrette answered with 15 feet, 7 inches in Week 10, and Trent Gutstein closed it out in Week 15 from a recorded 10 feet, 7 inches, though the contest sheet was thrown out before the distance was written down. Closest to the Pin produced the season's two funniest numbers on the same night: in Week 14, Steve Menges won the first-shot prize from 42 feet, 4 inches, because nobody troubled the flag, while Trent Gutstein took the second-shot prize from 2 feet, 7 inches, the closest anyone hit it all season. Steven Cruz and Jim Madden split the Week 9 prizes, and Logan Slattery and Steve Menges split Week 11.
 
 The World Cup Challenge made its debut in Week 8 and went to David Hodge, who piled up five wins and two draws against net par for 17 points. Patrick Healy won Circle 5 in Week 13 at five under net on his five chosen holes, and Andrew Walker took the Wrong 5 alternative prize at plus one.
 
