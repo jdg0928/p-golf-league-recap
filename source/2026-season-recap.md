@@ -38,9 +38,9 @@ Because the league plays nine at a time, the full 18 only comes together over th
 
 Inside that, the course is anything but even. The par-5 2nd was the hardest hole on the property at 6.72, and it gave up exactly one birdie all season. The 17th was next at 5.66, a closer where more than half of all scores were double bogey or worse. The 5th ranked third despite being the shortest of the three par 5s on the front, with nearly half its scores at double or worse.
 
-At the other end, the short par-3 4th was the only hole on the course that played under four strokes, at 3.84. The 8th was the birdie hole with 16, more than any hole on the card, and the 6th produced 12 birdies and exactly as many pars as bogeys. The steadiest hole was the 13th, which yielded 71 pars, more than any other.
+At the other end, the short par-3 4th was the only hole on the course that played under four strokes (3.84). The 8th was the birdie hole with 16, more than any hole on the card, and the 6th produced 12 birdies and exactly as many pars as bogeys. The steadiest hole was the 13th, which yielded 71 pars, more than any other.
 
-Two holes deserve footnotes. The 3rd is a two-tiered green, and the pin sat on the harder back shelf every week the league played the front, which helps explain why a short par 3 ranked fourth-hardest on the course. And the 11th played closer to a par 3½ for much of the season while crews put in new drainage and a retaining pond, so its scoring average is not comparable to the rest of the card. That work is finished.
+Two holes deserve footnotes. The 3rd is a two-tiered green, and the pin sat on the harder back shelf every week the league played the front, which helps explain why a short par 3 ranked fourth-hardest on the course. And the 11th played closer to a par 3½ for much of the season while crews put in new drainage and a retaining pond, so its scoring average is not comparable to the rest of the card. Fortunately, that work is complete.
 
 The quiet villain was the par-3 12th. It produced 88 bogeys, more than any hole on the course. Seldom a par, seldom a disaster, almost always a bogey.
 
